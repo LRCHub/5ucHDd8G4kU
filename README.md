@@ -1,0 +1,92 @@
+# One Direction – Infinity
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+[Verse1:Niall Horan]
+Down to Earth
+Keep 'em falling when I know it
+hurts
+Going faster than a million
+miles an hour
+Trying to catch my breath some
+way, somehow
+Down to Earth
+It's like I'm frozen, but the
+world still turns
+Stuck in motion, but the wheels
+keep spinning 'round
+Moving in reverse with no way
+out
+[Pre-Chorus:Liam Payne]
+And now I'm one step closer to
+being
+Two steps far from you
+And everybody wants you
+Everybody wants you
+[Chorus:Harry Styles]
+How many nights dose it take to
+count the stars?
+That's the time it would take to
+fix my heart
+Oh, baby, I was there for you
+All ever wanted was the truth,
+yeah, yeah
+How many nights have you wished
+someone would stay?
+Lie awake only hoping they're
+okay
+I never counted all of mine
+If I tried, I know it would feel
+like infinity
+Infinity, infinity, yeah
+Infinity
+[Verse2]
+Eyes can't shine
+Unless there's something burning
+bright behind
+Since you went away, there's
+nothing left in mine
+I feel myself running out of
+time
+[Pre-Chorus:Louis Tomlinson]
+And now I'm one step closer to
+being
+Two steps far from you
+And everybody wants you
+Everybody wants you
+[closer:Harry Styles]
+How many nights dose it take to
+count the stars?
+That's the time it would take to
+fix my heart
+Oh, baby, I was there for you
+All ever wanted was the truth,
+yeah, yeah
+How many nights have you wished
+someone would stay?
+Lie awake only hoping they're
+okay
+I never counted all of mine
+If I tried, I know it would feel
+like infinity
+Infinity, infinity, yeah
+Infinity
+[Chorus:Harry Styles]
+How many nights dose it take to
+count the stars?
+That's the time it would take to
+fix my heart
+Oh, baby, I was there for you
+All ever wanted was the truth,
+yeah, yeah
+How many nights have you wished
+someone would stay?
+Lie awake only hoping they're
+okay
+I never counted all of mine
+If I tried, I know it would feel
+like infinity
+Infinity, infinity, yeah
+Infinity
+```
